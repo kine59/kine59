@@ -1,5 +1,5 @@
-# hi sup, im terrenebrick699
-im some kid who likes making stuff and uh yea
+# hi sup, im kine95
+im some kid who likes making software and games, i also do artwork and music too
 
 ## list of what i am
 - owner of koko studios
