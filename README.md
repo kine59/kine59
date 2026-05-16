@@ -1,4 +1,4 @@
-# hi sup, im kine95
+# hi sup, im kine59
 im some kid who likes making software and games, i also do artwork and music too
 
 ## list of what i am
